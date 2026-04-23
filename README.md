@@ -66,3 +66,4 @@ Portofolio ini dibuat untuk keperluan profesional dan personal.
 
 **"Menginspirasi pikiran, membentuk masa depan, satu pelajaran pada satu waktu."**
 
+
